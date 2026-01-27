@@ -1,1 +1,1 @@
-# smart-phone-tips
+Digital skills & web solutions 
